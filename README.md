@@ -1,0 +1,1 @@
+# Kolokwium HTML - Natalia Pieniek Numer albumu: 250410 - Kognitywistyka Komunikacji grupa 2 - Data:2026-10-30
